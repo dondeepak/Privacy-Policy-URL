@@ -86,4 +86,4 @@ We may update this Privacy Policy from time to time. The updated version will be
 
 For questions about this Privacy Policy, contact:  
 **Email:** dondeepakkumar20@gmail.com.com  
-*(Replace with your actual support email before publishing)*
+
